@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm  Ayush Singh
-**A passionate Data Science|| Data Analytics || Ayush Singh from India**
+**A passionate Data Science || Data Analytics || Power BI Developer  || Ayush Singh from India**
 
 Email Me 👉 ✉️ **singhayush23899@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
